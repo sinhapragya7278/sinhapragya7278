@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @sinhapragya7278 with 7 years of expertise in Automation, DevOps, and AI/ML, I'm always eager to learn and improve. Your feedback is welcome and appreciated!
+- 👀 I’m interested in Reading books, sketching, gardening, cooking
+- 🌱 I’m currently learning about the customized LLM models and ML
+- 💞️ I’m looking to collaborate on anything you find interesting and valuable
+- 📫 Reach me on my gmail - sinhapragya020@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I am always eager to learn and explore new things, constantly seeking to expand my knowledge and skills.
